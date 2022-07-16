@@ -1,1 +1,1 @@
-# mmc
+kan waaa readme da projicteennsa
